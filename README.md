@@ -1,0 +1,1 @@
+# Pataent-Drukaki-Kwantowej
