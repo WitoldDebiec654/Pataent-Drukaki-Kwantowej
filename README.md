@@ -41,3 +41,4 @@ Sportowcy i Clospi zdemoralizowało społeczenistwo są brutalni w zachowaniu co
 Po wymordowaniu Wiedźm na ziemię upadli jaskiniowcy Kali i żydzi hakerzy oni wam powiedzą że polowali na Jezusy. 
 Jak były wiedźmy nie było tylu co dzisiaj pijanych i naćpanych czy agresywnych. 
 Azar Javed był żydem. 
+Za czasów Wiedźm nie zabijano zwierząnt jak teraz. Sport był wirusem co zabił wiedźmy. 
