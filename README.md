@@ -18,3 +18,4 @@ Chif słynny z legi sparty powieslili go na haku za żebro w lesie na gałęzi d
 Kali zlecił zabujstwo na AIG Kristiany Loken i Konora i aktorów. Została sama Kristiama TX. 
 Kali z grupą Kali Linux był gwiazdą mosadu od żydów żydy zidów z Izraela. 
 Poszło o kasę na NGO. 
+Izrael i żydzi i walka o kasę na NGO to rój przestępców razem z Mosadzikiem i Kalim. 
