@@ -3,3 +3,4 @@ Co do procesorów jeśli chcemy mieć luksus to procesory będą zmieniane jak �
 Powiedzcie ruskim Hakerom że ich nie potrzebujemy tych specjalistów od kradzieży kont ludzi na konta NGO że będą bezdomni jak będą kłucić się o mocne procesory do hakingu i gier komputerowych. 
 Kali i chłopaki i gracze silnymi procesorami w przyszłości kradli pieniądze jak SkyNet z całych sieci komputerowych i mówili światu płaczemy płaczemy teraz ludzie jesteśćie bez kasy frajerami kaliego. 
 To procesory pójdą do medycyny nie do BTC, Hakingu czy gier. 
+Do leczenia hakerów i tych wieśków kiboli na leczenia na AIG lecą gwiazdy do leczenia tych wiochmenów. Dlatego będę drukarki. Teraz te wieśki jak znów coś przeskrobią pójdą do rzeźnika medycznego. 
