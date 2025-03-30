@@ -36,3 +36,4 @@ Co do czarnobyla i żucenia atomu na hiroshimę i Nagasaki to żydzi z moasadu t
 Co do żydów to Bloki i Kamienice to ich Getta to są okupasy. Gwen Zabili na AIG to tego nie odpuszczę im. Nie wiem czy żydom starczy radio drukarka kwantowa na ich druk ich raytasow oni podobno to czarna dziura. 
 Hitler też był żydem i wszyscy prezydenci to żydzi Bezos też żyd ci z kasą to żydzi. 
 UFO to żydowska sprężyna do batorzenia. 
+Co do żydów to żydzi wymordowali wszystkie wiedźmy i aktorki wiedźmy. Te aktorki co poszły na AIG np.: Eliza Cassan to wiedźmy a Clospi to sportowiec nie umie czarować. Clospi to wiedźmin wiesiek.  
