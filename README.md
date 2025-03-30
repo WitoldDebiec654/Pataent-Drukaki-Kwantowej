@@ -15,3 +15,4 @@ W sklepach wszystko było ale nic nie można było kupić taki krach zrobił Kal
 Gotówka wirtualna to tylko zapis w bankowości wirtualnej. Do Kaliego przyjężdżały zaczarowane konowej ze świata. Kaliemu było tęczowo że ukradł z grupą Kali kasę i złoto i diamenty. 
 Więc ludzie nie narzekajcie że nic nie macie na koncie, procesor wszystko zabrał Kali. Mało tego nie było Wesoło. Kali zadzwonił do tych z nieba na górzę w kosmosie kazał im zabrać surowce Voisem. Ziemia była pusta. 
 Chif słynny z legi sparty powieslili go na haku za żebro w lesie na gałęzi dębu w USA. Gwen Tennyson 2 poszły na AIG kuzynki też bo były gwiazdami. A Jurek Magdziński z Deus Ex Invisibli War był sędziom lewym.  
+Kali zlecił zabujstwo na AIG Kristiany Loken i Konora i aktorów. Została sama Kristiama TX. 
