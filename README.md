@@ -40,3 +40,4 @@ Co do żydów to żydzi wymordowali wszystkie wiedźmy i aktorki wiedźmy. Te ak
 Sportowcy i Clospi zdemoralizowało społeczenistwo są brutalni w zachowaniu co 2 słowo to bluzgi i rękoczyny. 
 Po wymordowaniu Wiedźm na ziemię upadli jaskiniowcy Kali i żydzi hakerzy oni wam powiedzą że polowali na Jezusy. 
 Jak były wiedźmy nie było tylu co dzisiaj pijanych i naćpanych czy agresywnych. 
+Azar Javed był żydem. 
