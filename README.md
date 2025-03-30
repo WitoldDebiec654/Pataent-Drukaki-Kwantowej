@@ -25,3 +25,4 @@ Przekrent AIG zabrał wszystkich aktorów świata na ubezpieczenia zostawili mi 
 Bezosy to była Awantura. Stachu a kto przy telefonie awantura o las i kasę na NGO żydów. Żydzi zawsze NGO i awantura o Las. Za to zginoł Tesla i Jezus bo dali aptenty nie las i 1 zł. Żydzi to nieudacznicy jak ci z Mosadu. Bezos, Macroun, Natan Yahu to nieudaczcnicy. Nie wiedzą nic o hakingu. O prawdziwym hakingu. Zawsze z ich woli ginie wiele istnień na poczet Izraela. 
 Kali z Mosadem powiesił z AIG aktorów i przedsiębiorców z Przyszłości. 
 Ci ludzie aktorzy zgineli jak mięcho armatnie z ręki kaliego. Nie było TV. 
+Żydzi to czarna dziura na ziemi wirus. 
