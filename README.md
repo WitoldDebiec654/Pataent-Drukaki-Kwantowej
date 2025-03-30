@@ -26,3 +26,4 @@ Bezosy to była Awantura. Stachu a kto przy telefonie awantura o las i kasę na 
 Kali z Mosadem powiesił z AIG aktorów i przedsiębiorców z Przyszłości. 
 Ci ludzie aktorzy zgineli jak mięcho armatnie z ręki kaliego. Nie było TV. 
 Żydzi to czarna dziura na ziemi wirus. 
+Przez żydów narodzili się kredyciarze. Jak nie będzie dodruku piniedzy to znów będzie inflacja przez NGO i Timiego żydów. Żydzi to złodzieje post mafia. 
