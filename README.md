@@ -21,3 +21,4 @@ Poszło o kasę na NGO.
 Izrael i żydzi i walka o kasę na NGO to rój przestępców razem z Mosadzikiem i Kalim. 
 Ludzie nie dali na małego Timiego na jego konto NGO to kali powiedział Kali to procesor Kali to sędzia Kali ich powiesi Kali ich uzdrowi dla Izraela mosadu. Tyle z Afer NGO i AIG. 
 AIG to izraelski żydowski lewy przkrent mosadu na aktorach i gwiazdach i TV. TV nie było. 
+Przekrent AIG zabrał wszystkich aktorów świata na ubezpieczenia zostawili mi tylko 4 dziewczyny. 
