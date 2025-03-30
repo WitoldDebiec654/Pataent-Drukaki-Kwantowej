@@ -38,3 +38,4 @@ Hitler też był żydem i wszyscy prezydenci to żydzi Bezos też żyd ci z kas�
 UFO to żydowska sprężyna do batorzenia. 
 Co do żydów to żydzi wymordowali wszystkie wiedźmy i aktorki wiedźmy. Te aktorki co poszły na AIG np.: Eliza Cassan to wiedźmy a Clospi to sportowiec nie umie czarować. Clospi to wiedźmin wiesiek.  
 Sportowcy i Clospi zdemoralizowało społeczenistwo są brutalni w zachowaniu co 2 słowo to bluzgi i rękoczyny. 
+Po wymordowaniu Wiedźm na ziemię upadli jaskiniowcy Kali i żydzi hakerzy oni wam powiedzą że polowali na Jezusy. 
