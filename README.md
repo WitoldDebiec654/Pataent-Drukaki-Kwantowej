@@ -30,3 +30,4 @@ Przez żydów narodzili się kredyciarze. Jak nie będzie dodruku piniedzy to zn
 Watykan też kradnie. Kolejny złodziej to nasz premier co obniża stopy Prcentowe i karze brać kredyty nie durukarki bo dba o eko papier celulozowy żydo komuny. 
 Konwoje mają intelekt interaktywnych zabawek do tego kradną kasę i wyworzą za granice do Kaliego na małego Timiego zydka i jego NGO. 
 Żydzi zawsze byli i będą święći zrobią głupią przerażoną mine i im się upiecze uczynek zły na dobry i powieszą jak zwykle tych co wzieli do AIG i zostanie znów żydowskie Clospi Izraelani matołów Widzewa. 
+Żydzi robili zawsze filmy o gechenie żydowskich dzieci co złożli w ofierze ja myślałem że zabijają Polaków a to żydów i z tego powodu ich NGO trąbi. I pisze ratujmy żydowskie niemowlęta Mogli. 
