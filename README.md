@@ -19,3 +19,4 @@ Kali zlecił zabujstwo na AIG Kristiany Loken i Konora i aktorów. Została sama
 Kali z grupą Kali Linux był gwiazdą mosadu od żydów żydy zidów z Izraela. 
 Poszło o kasę na NGO. 
 Izrael i żydzi i walka o kasę na NGO to rój przestępców razem z Mosadzikiem i Kalim. 
+Ludzie nie dali na małego Timiego na jego konto NGO to kali powiedział Kali to procesor Kali to sędzia Kali ich powiesi Kali ich uzdrowi dla Izraela mosadu. Tyle z Afer NGO i AIG. 
