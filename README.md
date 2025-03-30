@@ -22,3 +22,4 @@ Izrael i żydzi i walka o kasę na NGO to rój przestępców razem z Mosadzikiem
 Ludzie nie dali na małego Timiego na jego konto NGO to kali powiedział Kali to procesor Kali to sędzia Kali ich powiesi Kali ich uzdrowi dla Izraela mosadu. Tyle z Afer NGO i AIG. 
 AIG to izraelski żydowski lewy przkrent mosadu na aktorach i gwiazdach i TV. TV nie było. 
 Przekrent AIG zabrał wszystkich aktorów świata na ubezpieczenia zostawili mi tylko 4 dziewczyny. 
+Bezosy to była Awantura. Stachu a kto przy telefonie awantura o las i kasę na NGO żydów. Żydzi zawsze NGO i awantura o Las. Za to zginoł Tesla i Jezus bo dali aptenty nie las i 1 zł. Żydzi to nieudacznicy jak ci z Mosadu. Bezos, Macroun, Natan Yahu to nieudaczcnicy. Nie wiedzą nic o hakingu. O prawdziwym hakingu. Zawsze z ich woli ginie wiele istnień na poczet Izraela. 
