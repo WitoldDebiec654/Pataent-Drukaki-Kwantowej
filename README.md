@@ -57,3 +57,4 @@ Kali to aferzysta jak z aferami bierz dotacje kolejne lotto i kredyty dla kredyc
 Jedni kazali ciężko pracować i wykonywać Post Wysiłek 2 kazali kraść. A sklepy nie chciały sprzedawać za dużą ilość gotówki towarów. 
 Burak Kali kłłócił się przegłosami o Oszczędzacze, Urządzenia oszczędzania energi itp. I stale gadał oszczędzacze. Dlatego zabrał kasę. Nikt się ekologią sklepów nie matrtwił. 
 To co było kiedyś i teraz to Kali przerkrenty na świecie. 
+Kali i Borys z Procsorami i Maind Trick pokazali w Warszawie klasę prostetsów i pajacó kod i gdzie jest krzyż ludzie na ich sterowanie pilotem pjacowali.  
