@@ -43,3 +43,4 @@ Jak były wiedźmy nie było tylu co dzisiaj pijanych i naćpanych czy agresywny
 Azar Javed był żydem. 
 Za czasów Wiedźm nie zabijano zwierząnt jak teraz. Sport był wirusem co zabił wiedźmy. 
 Ci co tu Upadli to zwierzęta. 
+Podobno Wiedźmy znały leki na padaczkę i białączkę czy raka 1 tabletki bez chemi. 
