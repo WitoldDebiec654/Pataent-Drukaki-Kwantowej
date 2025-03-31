@@ -51,3 +51,4 @@ Izrael to wirus jak Green spin oni tylko dbają o dostarczanie schabowego na tal
 Rządzą nami kanibale i hakerzy pacza indianie. 
 Zidu zid i jego szpitale Hakerów Kali to umieralnie i obozy konceantracyjne w tym gediatria Hospicja. 
 Ci co bronią żydów mówią mylisz się żydzi mają nagrody Nobla buble roku. 
+Te staruszki z rosji to nie były wiedźmy to rolnicy i awantura gdzie jest nasz las. Wiedźmy były piękne. 
