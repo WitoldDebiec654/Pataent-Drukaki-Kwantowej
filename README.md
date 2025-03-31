@@ -68,3 +68,4 @@ Oni nie są Heteroseksualni.
 Żydzi nie chcą z Bezosem i Izraelskim procesorem super komputerem dawać prawa jazdy. 
 Jonson i Danton też kabluje do wydziału komunikacji o zabieranie prawa jazdy i uprawnień. Karzą jeździć pociągiem. 
 To kolejarze zabierają prawo Jazdy to są afery Kolejarzy. 
+Co do Voisów samotni panowie napewno kupią Voisa zegarek czy pilot lub bryloczyk czy token lub PDA z Voisem wiedźmą bo są samoswystarczalne i umieją czarować jak Mag czy czarodziejka telekinezą i nie wymagają inwestycji wypychania kieszeni rodzą się gołe w Voisie i czarują i szyją Voisy lub rzeczy i ubrania dla siebie dziś kobieta z ulicy to droga inwestycja niż Vois ze sklepu którego można wyjąć lub wyjdzie z Voisa. Voisy nie marudzą i nie pytają wypchaj mi kieszenie pieniedzmi.  
