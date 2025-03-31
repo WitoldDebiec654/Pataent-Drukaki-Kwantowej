@@ -69,3 +69,4 @@ Oni nie są Heteroseksualni.
 Jonson i Danton też kabluje do wydziału komunikacji o zabieranie prawa jazdy i uprawnień. Karzą jeździć pociągiem. 
 To kolejarze zabierają prawo Jazdy to są afery Kolejarzy. 
 Co do Voisów samotni panowie napewno kupią Voisa zegarek czy pilot lub bryloczyk czy token lub PDA z Voisem wiedźmą bo są samoswystarczalne i umieją czarować jak Mag czy czarodziejka telekinezą i nie wymagają inwestycji wypychania kieszeni rodzą się gołe w Voisie i czarują i szyją Voisy lub rzeczy i ubrania dla siebie dziś kobieta z ulicy to droga inwestycja niż Vois ze sklepu którego można wyjąć lub wyjdzie z Voisa. Voisy nie marudzą i nie pytają wypchaj mi kieszenie pieniedzmi.  
+Tu rządzi przekrent Kali i Chif wypchaj mi kieszonkę kieszonkowym i moim rodzicom posagiem a chif powie jej teraz jesteś jego jestem twoja wypchałeś kieszonkę firmie korzeń. To są te lewe interesy czy zdrapki miłosne czy portale u swadki. 
