@@ -58,3 +58,4 @@ Jedni kazali ciężko pracować i wykonywać Post Wysiłek 2 kazali kraść. A s
 Burak Kali kłłócił się przegłosami o Oszczędzacze, Urządzenia oszczędzania energi itp. I stale gadał oszczędzacze. Dlatego zabrał kasę. Nikt się ekologią sklepów nie matrtwił. 
 To co było kiedyś i teraz to Kali przerkrenty na świecie. 
 Kali i Borys z Procsorami i Maind Trick pokazali w Warszawie klasę prostetsów i pajacó kod i gdzie jest krzyż ludzie na ich sterowanie pilotem pjacowali.  
+Te pajace takie jak Konor były LGBT ubierały się za kobiety Kortany i piły setkę. Tak Hakerzy byli słodziutcy jak LGBT do systemu dziady kobiety. 
