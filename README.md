@@ -42,3 +42,4 @@ Po wymordowaniu Wiedźm na ziemię upadli jaskiniowcy Kali i żydzi hakerzy oni 
 Jak były wiedźmy nie było tylu co dzisiaj pijanych i naćpanych czy agresywnych. 
 Azar Javed był żydem. 
 Za czasów Wiedźm nie zabijano zwierząnt jak teraz. Sport był wirusem co zabił wiedźmy. 
+Ci co tu Upadli to zwierzęta. 
