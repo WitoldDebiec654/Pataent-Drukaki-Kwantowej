@@ -66,3 +66,4 @@ Jak ktoś był by pomysłowo i Łaskawy może dać im radio drukarkę kwantową 
 Oni nie są Heteroseksualni. 
 Żydzi to jaskiniowcy wszystkie cyrki to oni. 
 Żydzi nie chcą z Bezosem i Izraelskim procesorem super komputerem dawać prawa jazdy. 
+Jonson i Danton też kabluje do wydziału komunikacji o zabieranie prawa jazdy i uprawnień. Karzą jeździć pociągiem. 
