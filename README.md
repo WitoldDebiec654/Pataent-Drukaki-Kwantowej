@@ -47,3 +47,4 @@ Podobno Wiedźmy znały leki na padaczkę i białączkę czy raka 1 tabletki bez
 To Kali hakerzy karzą pić meleko i jeść haburgery. 
 Co do wiedźm to one chodziły w Kocu, Płaszczu, Polarze, Swterze i Futrze. Ta moda już zanikła przez sport i Geniusz lewego. 
 Co do sportowców to są śmieci i prymitywy. A lekarze nie umieją leczyć tabletkami tylko wypisują Homopatię dragi.  
+Izrael to wirus jak Green spin oni tylko dbają o dostarczanie schabowego na talerz. 
