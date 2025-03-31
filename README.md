@@ -53,4 +53,4 @@ Zidu zid i jego szpitale Hakerów Kali to umieralnie i obozy konceantracyjne w t
 Ci co bronią żydów mówią mylisz się żydzi mają nagrody Nobla buble roku. 
 Te staruszki z rosji to nie były wiedźmy to rolnicy i awantura gdzie jest nasz las. Wiedźmy były piękne. 
 Kali to patron korporacyjek i tych sklepów dziwnych okacjonalnych. 
-Kali to aferzysta jak z aferami bierz dotacje kolejne lotto i kredyty dla kredyciarzy. Kredyty to kara. 
+Kali to aferzysta jak z aferami bierz dotacje kolejne lotto i kredyty dla kredyciarzy. Kredyty to kara za grzechy. 
