@@ -46,3 +46,4 @@ Ci co tu Upadli to zwierzęta.
 Podobno Wiedźmy znały leki na padaczkę i białączkę czy raka 1 tabletki bez chemi. 
 To Kali hakerzy karzą pić meleko i jeść haburgery. 
 Co do wiedźm to one chodziły w Kocu, Płaszczu, Polarze, Swterze i Futrze. Ta moda już zanikła przez sport i Geniusz lewego. 
+Co do sportowców to są śmieci i prymitywy. A lekarze nie umieją leczyć tabletkami tylko wypisują Homopatię dragi.  
