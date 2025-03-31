@@ -50,3 +50,4 @@ Co do sportowców to są śmieci i prymitywy. A lekarze nie umieją leczyć tabl
 Izrael to wirus jak Green spin oni tylko dbają o dostarczanie schabowego na talerz. 
 Rządzą nami kanibale i hakerzy pacza indianie. 
 Zidu zid i jego szpitale Hakerów Kali to umieralnie i obozy konceantracyjne w tym gediatria Hospicja. 
+Ci co bronią żydów mówią mylisz się żydzi mają nagrody Nobla buble roku. 
