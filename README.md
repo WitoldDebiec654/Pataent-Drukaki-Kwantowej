@@ -74,3 +74,4 @@ Ludzie na świecie nikogo nie słuchają tylko Kaliego i Bezosa bo ktoś im radi
 Kolejny przekrent post mafi Kali to Dziki Lawendowski pisze grafiki każdemu pisze grafiki Geniusz lewgo Portier i bramkarz gol pisze pod Cerffur. 
 Na Bezosy i żydów ludzi ulicy i hipisów mówi się zegary lub Taimery czy hakery. 
 Niebo to Bezosy to ich Policja. Tu jest tylko Bezos Taim Line towary i inne frykasy, pościmy pościmy bo placzemy płaczemy, Jak coś chcesz odemnie wypchaj mi kieszenie i moim starym. Bo my dziki takie jesteśmy.  
+Konwoje są pierwsze do opróżnienia na świecie skarbca i zawieżenia kasy i majątku świata do Kaliego a ganiczcnicy ich nie łapią oni jadą. A jak przyjadą Voisy to szperctwo jest na graniczy przez graniczników. Ci ludzie i ich rządy dzikie są nie legalen i lewe jak Lewandowski big cyc.  
