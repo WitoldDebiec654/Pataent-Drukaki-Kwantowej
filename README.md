@@ -62,3 +62,4 @@ Te pajace takie jak Konor były LGBT ubierały się za kobiety Kortany i piły s
 Za miasta pozbyć się Borysa Hakera i Kaliego z USA Hakera bezpieki to świat pił wódę i brał dragi nie kócił się o kasę. Jak zwykli się podali. I jak zwyklę zmienili płeć. 
 Jezus był Judaszem bo chwalił LGBT. Judasz był Heteroseksualny i był mędrcem. 
 Kasy nie było przez Kaliego i Borysa. Dziś przez LGBT. 
+Jak ktoś był by pomysłowo i Łaskawy może dać im radio drukarkę kwantową i niech lewy z kasą z druku kwantowego wyprowadzi się na Marsa tam niech żyje lewy w swoim Azylu Elon też niech z nimi leci.  
