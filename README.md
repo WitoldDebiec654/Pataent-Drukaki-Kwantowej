@@ -64,3 +64,4 @@ Jezus był Judaszem bo chwalił LGBT. Judasz był Heteroseksualny i był mędrce
 Kasy nie było przez Kaliego i Borysa. Dziś przez LGBT. 
 Jak ktoś był by pomysłowo i Łaskawy może dać im radio drukarkę kwantową i niech lewy z kasą z druku kwantowego wyprowadzi się na Marsa tam niech żyje lewy w swoim Azylu Elon też niech z nimi leci.  
 Oni nie są Heteroseksualni. 
+Żydzi to jaskiniowcy wszystkie cyrki to oni. 
