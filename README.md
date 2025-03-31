@@ -61,3 +61,4 @@ Kali i Borys z Procsorami i Maind Trick pokazali w Warszawie klasę prostetsów 
 Te pajace takie jak Konor były LGBT ubierały się za kobiety Kortany i piły setkę. Tak Hakerzy byli słodziutcy jak LGBT do systemu dziady kobiety. 
 Za miasta pozbyć się Borysa Hakera i Kaliego z USA Hakera bezpieki to świat pił wódę i brał dragi nie kócił się o kasę. Jak zwykli się podali. I jak zwyklę zmienili płeć. 
 Jezus był Judaszem bo chwalił LGBT. Judasz był Heteroseksualny i był mędrcem. 
+Kasy nie było przez Kaliego i Borysa. Dziś przez LGBT. 
